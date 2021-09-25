@@ -1,1 +1,0 @@
-twin-peaks animation for illumination
